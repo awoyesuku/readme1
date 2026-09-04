@@ -1,1 +1,1 @@
-obi is a boy
+the name of my school is quality concept 
